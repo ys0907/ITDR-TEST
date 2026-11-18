@@ -1,4 +1,1 @@
 # ITDR-TEST
-
-LTAI5t7s7XhXrYgunJLd3y5i
-hcywGtFw7CdyDrGJIW96HnN9lkXUhp
